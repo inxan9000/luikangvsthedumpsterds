@@ -1,0 +1,1 @@
+Drag Liu kang to the dumpster 3 times and lose.
